@@ -8,10 +8,9 @@ La influencer británica Luna bella en el metro se quita las bragas en la calle 
 La grabación, que mostraba a ambos simulando una relación sexual, provocó una lluvia de críticas en redes sociales y cuestionamientos sobre su conducta profesional, ya que se encontraba en uniforme oficial.
 
 
-Mira el vídeo ✅👉 https://parade.today/viral-leaked-video-watch-download-free-online/
+Mira el vídeo ✅👉 [https://parade.today/viral-leaked-video-watch-download-free-online/](https://parade.today/noticias/luna-bella-en-el-metro-video-viral/)
 
-Mira el vídeo ✅👉 https://parade.today/viral-leaked-video-watch-download-free-online/
-
+Mira el vídeo ✅👉 [https://parade.today/viral-leaked-video-watch-download-free-online/](https://parade.today/noticias/luna-bella-en-el-metro-video-viral/)
 
 ¿Quién es la mujer del video Luna bella en el metro?
 
